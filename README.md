@@ -1,1 +1,0 @@
-# Tr-n-Th-Ng-c-Thi-1350080258-CNTT1
